@@ -1,4 +1,4 @@
-JUEGOS RPG
+>JUEGOS RPG< Que he jugado y recomiendo
 
 #1 Monster Getter
 
@@ -15,4 +15,16 @@ JUEGOS RPG
 #4 Safi's Ecchi Adventure 
 
 <[LINK]> https://drive.google.com/file/d/1NiN6Dv3CltAxc2ufbHTs_TOgXabbGiud/view 
+
+#5 Red Riding Hood Errand 
+
+<[LINK]> https://mega.nz/#!TMhGXTgB!cbJn11cyyJHlijIf21NuANKqrbMEnLbkv8Ab9ZkB-iA
+
+//////////////////////////////////////////////////////////////////////
+
+Otros Generos
+
+#1 Xenotake (side scrolling)
+
+<[LINK]> https://mega.nz/#!mNkQSTqa!KSBuvrPhEldRke2ehxD-tp-OEwzfq-1W3OWyaEso0-k 
 
