@@ -1,8 +1,9 @@
 # Anon
-Coleccion de juego H
+Coleccion de juegos H
 
 Coleccion de Hentai Games #1
-
+  
+//IMPORTARTE: reportar por links caidos en el hilo negro :D
 
 Monster Getter
 
