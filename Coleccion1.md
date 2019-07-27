@@ -1,7 +1,4 @@
-# Anon
-Coleccion de juegos H
-
-Coleccion de Hentai Games #1
+# Coleccion de Hentai Games Vol.1
   
 //IMPORTARTE: reportar por links caidos en el hilo negro :D
 
