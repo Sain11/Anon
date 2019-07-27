@@ -191,7 +191,7 @@ https://megaup.net/syW0/Slaves_Sword_2.rar
 //////////////////////////////////////////////////////////////////////////////////////////////
 
 
-**ALIENQUEST EVE V0.13** (8/10) Juego redondo, Lolis, la prota es la villana...muy buen juego
+**ALIENQUEST EVE V0.13** Metroidvania con un arte y animaciones muy buenas, Sigue en desarrollo
 
 <[LINK JUEGO]>https://drive.google.com/file/d/1DtjFlqO_U4n5dS-g4NqL0qaRRzeQ_Aj8/view
 
