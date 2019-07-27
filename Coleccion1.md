@@ -5,21 +5,21 @@ Coleccion de Hentai Games #1
   
 //IMPORTARTE: reportar por links caidos en el hilo negro :D
 
-Monster Getter
+Monster Getter (8/10) ESTA EN ESPAÑOL ya es razon suficiente
 
 <[LINK]>
 https://mega.nz/#!GAsXBA5a!DfT1vdLZDWZEMWfcBXhJjlLKOyKWcrvHTSjiOojoJBQ 
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-Succubus the six spells
+Succubus the six spells (8/10) Si te gustan las plataformas
 
 <[LINK]>
 https://mega.nz/#!sOQGHAwR!QkP7VSBDUFWXFr-cegSjX01efn--UBEK6qvB7Vhm4sE
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-Noxian Nights:
+Noxian Nights: (9/10) Muchos Cgs, larga duraccion muy recomendado. 
 
 [GUIA]
 https://docs.google.com/document/d/1WHGraTnfzextT7ubV5UPb7j7ke789X9UCiJlNOfVq64/pub 
@@ -29,28 +29,28 @@ http://hreinngames.blogspot.com/p/noxian-nights.html?zx=5bce2d1e135aa73
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Fine la Alquimista
+Fine la Alquimista (7/10) ESTA EN ESPAÑOL
 
 <[LINK]>
 http://hitsuji-translations.blogspot.cl/p/blog-page_25.html
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Eroico
+Eroico (9/10) Plataformas
 
 <[LINK]>
 https://mega.nz/#!DIdDFB6b!orI_O11Ds9tU5utUDt4UPWjyJecqL2uSomsx2cs_Zt0 
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Echidna Wars
+Echidna Wars (6/10)
 
 <[LINK]>
 https://mega.nz/#!CIFxlJ4B!vUiMh_MaP5NwfddEkak7JF-IRpzWIVjvuzkRu5Kzcms
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Magica
+Magica  (7/10)
 
 [GUIA]
 (http://www.hongfire.com/forum/forum/hentai-lair/hentai-game-discussion/385804-game-over-rape-ii-second-penetration/page190?highlight=magica#post4171829) 
@@ -60,42 +60,42 @@ https://mega.nz/#!Kk1ByBbQ!tRVNIqvfaCj6e_7L8Gs8m3gnD9rdsTwiHVhuCQIneU0
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-DARK STAR
-
+DARK STAR (7/10)
+ 
 <[LINK]>
 https://mega.nz/#!LQsw2ITC!Lirbmf1PRZgd7wODw9cC6SWwgDeDGR9Ai6V51nF5Y8g
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Xenotake 
+Xenotake  (7/10)
 
 <[LINK]>
 https://mega.nz/#!mNkQSTqa!KSBuvrPhEldRke2ehxD-tp-OEwzfq-1W3OWyaEso0-k
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Vitamin Quest (Ingles)
+Vitamin Quest (Ingles) (8/10)
 
 <[LINK]>
 https://www.dropbox.com/s/pc1wla5tk7p3llg/vitamin%20quest.rar?dl=0
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Project X : Love Potion Disaster 7.4 
+Project X : Love Potion Disaster 7.4  (9/10)
 
 <[LINK]>
 https://www.thezetateam.org/projectx.html
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Bullet Requiem 
+Bullet Requiem  (7/10)
 
 <[LINK]>
 https://mega.nz/#!SBVGSJLY!ABS1yW9stg7czp31jp-UJTXNgjHEKLno4-fxYbbwsIE
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Tobihime 
+Tobihime  (8/10)
 
 <[LINK]>(pc)
 http://elhogardelnoob.blogspot.com/2017/07/tobihime-interbreed-r18.html
@@ -105,7 +105,7 @@ http://porno-apk.com/game.php?i=235
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-DROP FACTORY 
+DROP FACTORY  (8/10)
 
 GUIA PENDIENTE
 
@@ -114,21 +114,21 @@ https://mega.nz/#!BwcUzJRb!kCA25GgcxHDOl1nCvkLlBj0U3KiAfrMe27xSSRcjnNM
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-El Pervertido Viaje De Mei 
+El Pervertido Viaje De Mei  (8/10) ESPAÑOL
 
 <[LINK]>
 http://hitsuji-translations.blogspot.com/p/blog-page_8.html 
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
-
-SchoolDotFight 
+ 
+SchoolDotFight  (6/10)
 
 <[LINK]>
 https://mega.nz/#!nB0RRYRa!JJP-i-goY3DP-dMwZvUmEFUUAHx1hVJCBIJJunBigog
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Dark Elf Historia Ver. en ingles. 
+Dark Elf Historia Ver. en ingles.  (10/10)
 
 <[LINK]>
 https://mega.nz/#!tY9m0YKL!bVYNnLNhYYrFoBkTSkRAfU56sL3IjMIeHjmKSdXIqEE 
@@ -140,28 +140,28 @@ https://mega.nz/#!hapAVQgA!RSysJ242rXDTJJ3LN3KI_4RjEwSh4xEfMbv5N56-a-Q
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Milky Quest 
+Milky Quest  (9/10)
 
 <[LINK]>
 https://mega.nz/#!Bl1TgYob!q6WC5Uftbhq4js9pnYvxlvpWyMk0hb1DrELgcM7aflU 
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Eater Eroico
+Eater Eroico (7/10)
 
 <[LINK]>
 https://mega.nz/#!6hBmnZ4I!0cjS7668eHlD3R-f4rlz8P1oPwNnbcIrm3iRFrOQaBk
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Succubus 
+Succubus  (8/10)
 
 <[LINK]>
 http://www.mediafire.com/file/1ccwka9noe14k15/SuccubuS.rar
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-Hunter Quest ~Aina's Fighting Story RPG 
+Hunter Quest ~Aina's Fighting Story RPG  (6/10)
 
 <[LINK]>(REQUIERE)
 RPGVXAce_RTPhttp://www.rpgmakerweb.com/download/additional/run-time-packages 
@@ -174,35 +174,35 @@ https://mega.nz/#!Z9VGgSLT!dhrJkM6d_0KGqlqvP9i7FJ-P47zcuAXpbBJb3FElCzA
 
 ///////////////////////////////////////////////////////////////////////////////////////////////
 
-The Legend Of Krystal Vg (juego online)
+The Legend Of Krystal Vg (juego online) (7/10)
 
 <[LINK]>
 https://www.newgrounds.com/portal/view/632041 
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Seishoku no Ori 
+Seishoku no Ori  (7/10)
 
 <[LINK]>
 https://mega.nz/#!glV32J5Z!L1M5ZojFyz-KodIg7z-1YCPIEe4LWN4pjEvvkjLAZJQ 
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Paio hazard
+Paio hazard  (6/10)
 
 <[LINK]>
 https://mega.nz/#!fx8wVYbL!OTb7oOSWXh9aaJU6BvJrv8PD0uHow9xtUkXP9wQMgkc
 
 /////////////////////////////////////////////////////////////////////////////////////////////////
 
-Parasite in city LINK 
+Parasite in city LINK  (10/10)
 
 <[LINK]>
 https://mega.nz/#!I3wVEZLY!jJkKWA64znF15xmxph2C7egHjmr4GAXkj89MlwkC4mw
 
 ////////////////////////////////////////////////////////////////////////////////////////////////
 
-Virus Z 
+Virus Z  (5/10)
 
 <[LINKS]> (prueba cual de los 2 te sirve) 
 https://mega.nz/#!lKYWHCDR!uB_hbIGtaE_LX5iDHEBxPdPDnx3GhRl70ADLdWO0jJo 
@@ -214,35 +214,35 @@ https://mega.nz/#!mJc2hLjb!IAwh3szOPEeYZTAI0KyzCLukSVy59Mmtx7GSJzd-d5w
 
 //////////////////////////////////////////////////////////////////////////////////////////////////
 
-The Heiress 
+The Heiress  (9/10)
 
 <[LINK]>
 https://mega.nz/#!QNkBTIga!3CWXKOTim1cTLJfmZjcaRENpeIZszNJ0XokpLPyC3Eo 
 
 //////////////////////////////////////////////////////////////////////////////////////////////////
 
-Prison Fantasia 
+Prison Fantasia  (9/10)
 
 <[LINK]>
 https://mega.nz/#!AxFC1CSa!PnXXhZbs9Tl2Cf8S_I19DqOuKFKHIpQ0NEHdSZyI5-0 
 
 //////////////////////////////////////////////////////////////////////////////////////////////////
 
-Guild Meister 2 
+Guild Meister 2  (7/10)
 
 <[LINK]>
 https://mega.nz/#!txZzFJRL!OTkfv0W1NhsWTe2CwIRIV8eXGR5c3uTr4Fgkv6H5mFg
 
 //////////////////////////////////////////////////////////////////////////////////////////////////
 
-Slave Girl ENA Beat'em up 2D 
+Slave Girl ENA Beat'em up 2D  (7/10)
 
 <[LINK]>
 https://mega.nz/#!6F0gzYRK!SihEENtZASdUaLOMoLJwLsJcRkNJ37pKBNkVhPdiEr0
 
 ///////////////////////////////////////////////////////////////////////////////////////////////////
 
-Orga kill
+Orga kill  (7/10)
 
 <[LINK]>
 https://mega.nz/#!tgdAFbaR!tkl8kv_8zCQnCZqLCzkIlNhhvLBtsuk2WbvsQJI7MhE 
@@ -251,21 +251,21 @@ https://mega.nz/#!tgdAFbaR!tkl8kv_8zCQnCZqLCzkIlNhhvLBtsuk2WbvsQJI7MhE
 
 ///////////////////////////////////////////////////////////////////////////////////////////////////
 
-Bitch Police
+Bitch Police  (6/10)
 
 <[LINK]>
 https://mega.nz/#!M59AjRIZ!vKTZzgvTwXpHSky5tLvdH32wgo-bc19fqf-Cr8DI6Rc 
 
 ///////////////////////////////////////////////////////////////////////////////////////////////////
 
-Haramikko Tamer Aria 
+Haramikko Tamer Aria  (6/10)
 
 <[LINK]>
 https://mega.nz/#!38EwhSwS!DoIXh21A2ofI6urTbMUsD5zWYiEiid-pOpRzyT91VI0
 
 ///////////////////////////////////////////////////////////////////////////////////////////////////
 
-Minako
+Minako  (8/10)
 
 <[LINK]>
 https://mega.nz/#!m9UjUBKJ!ozcS0OJ67LopFYacVtwKcWHhYzLHdDK94hRX8scUut4 
