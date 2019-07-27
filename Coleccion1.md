@@ -107,8 +107,7 @@ http://porno-apk.com/game.php?i=235
 
 DROP FACTORY 
 
-<[GUIA]>
-https://www.patreon.com/posts/drop-factory-6796528 
+GUIA PENDIENTE
 
 <[LINK]>
 https://mega.nz/#!BwcUzJRb!kCA25GgcxHDOl1nCvkLlBj0U3KiAfrMe27xSSRcjnNM
