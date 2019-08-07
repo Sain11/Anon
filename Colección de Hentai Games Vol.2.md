@@ -1,6 +1,6 @@
 # Coleccion de Hentai Games Vol.2
 
-**Fallen Makina and the City of Ruins**  (15/10) Es un muy buen juego
+**Fallen Makina and the City of Ruins (06/12/18)**  (15/10) Es un muy buen juego
 
 
 <[LINK]>(Solo 1 link)
@@ -13,7 +13,7 @@ https://mega.nz/#!jDhzlSKb!jbKqFoG5WDLOubJ4blfsyyF342blSqaswKM4z-KijTc
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Meltys Quest**  (9/10)
+**Meltys Quest ( 06/12/18)**  (9/10)
 
 
 <[LINK]>https://mega.nz/#!OuABVKoZ!vVJq_RC9ktCH4hZLZcwca5tyPJuEUfa2L9y2eBBvu38
@@ -23,7 +23,7 @@ https://mega.nz/#!jDhzlSKb!jbKqFoG5WDLOubJ4blfsyyF342blSqaswKM4z-KijTc
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Meritocracy of the Oni & Blade **  (10/10) La guia sirve bastante
+**Meritocracy of the Oni & Blade (07/12/18)**  (10/10) La guia sirve bastante
 
 
 <[LINK]> (Solo 1 link)
@@ -36,7 +36,7 @@ http://www.mediafire.com/file/0o1djva1hbo94z1/Oct.3rd+-+Meritocracy+of+the+Oni+%
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Treasure Hunter Claire**  (8/10) (Guia importante para el final verdadero, no te folles a todo el que te pase por delante)
+**Treasure Hunter Claire ( 09/12/18)**  (8/10) (Guia importante para el final verdadero, no te folles a todo el que te pase por delante)
 
 
 <[LINK]>https://mega.nz/#!PXYQVIZD!b5rWQfWw22gdRF-qe11LgbWoc8p_N6WFaBW3HrSfURg 
@@ -46,7 +46,7 @@ http://www.mediafire.com/file/0o1djva1hbo94z1/Oct.3rd+-+Meritocracy+of+the+Oni+%
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Final Fuck Again**  (8/10) (MUY IMPORTANTE tener config.regional japonesa para que funcione)
+**Final Fuck Again ( 12/12/18)**  (8/10) (MUY IMPORTANTE tener config.regional japonesa para que funcione)
 
 
 <[LINK]>https://mega.nz/#!NtcWAYgQ!9x38Md83Imms8P18wmydQ7x1fK3PM2kjbnHCUzXLXU0 
@@ -65,7 +65,7 @@ https://www56.zippyshare.com/v/25240163/file.html
 //////////////////////////////////////////////////////////////////////////////////////////////
 
 
-**Ariadne The incarnation**  (10/10) (un favorito personal ^-^)
+**Ariadne The incarnation (13/12/18)**  (10/10) (un favorito personal ^-^)
 
 
 <[LINK]>https://mega.nz/#!ZJlzBawL!M6DYUMqP8pBsUXXcmoLS1fjB4iKlnbjQDW6aaJQM-Mg 
@@ -81,7 +81,7 @@ http://www.hongfire.com/forum/forum/hentai-lair/hentai-game-discussion/385804-ga
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Huntress of Nipurheim -Branded Azel**  (7/10)
+**Huntress of Nipurheim -Branded Azel (16/12/18)**  (7/10)
 
 
 <[LINK]>http://www.mediafire.com/file/ruv2s7xbfqapada/Huntress+of+Nipurheim+-Branded+Azel-.rar 
@@ -89,7 +89,7 @@ http://www.hongfire.com/forum/forum/hentai-lair/hentai-game-discussion/385804-ga
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Succubus Rem** (7/10) 
+**Succubus Rem (27/12/18)** (7/10) 
 
 <[LINK JUEGO]>https://mega.nz/#!JmpkSBjZ!NAp31f2ua4pL34BtuxvBmFc91OZ6vWqU-vQohqUxEDs 
 
@@ -98,13 +98,13 @@ http://www.hongfire.com/forum/forum/hentai-lair/hentai-game-discussion/385804-ga
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Seed of Evil** (8/10) 
+**Seed of Evil (02/01/19)** (8/10) 
 
 <[LINK JUEGO]>https://mega.nz/#!BkMyVCKR!HyXzA6X3aHpI6e0hleqzuEWjKc7RqeZ3692pMqdMFfQ 
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**A Song of Elfpai and Tentacles I y II** (5/10)
+**A Song of Elfpai and Tentacles I y II ( 04/01/19)** (5/10)
 
 <[LINK JUEGO I]>https://mega.nz/#!nKxDxAhQ!ETVewulzVt9ArT1znzhOnSyh8fqcSB8faLyl-8J1sPY
 
@@ -112,33 +112,33 @@ http://www.hongfire.com/forum/forum/hentai-lair/hentai-game-discussion/385804-ga
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Marriage Or Pervert** (6/10)
+**Marriage Or Pervert (06/01/19)** (6/10)
 
 <[LINK JUEGO ]>https://mega.nz/#!jwk0jRTD!rrghOeNyHFsKrVaJ6G022CcQK86hmIb-MK-wigGjNUk
 
 //////////////////////////////////////////////////////////////////////////////////////////////
-**Kunoichi Botan** (7/10)
+**Kunoichi Botan ( 01/02/19)** (7/10)
 
 <[LINK JUEGO ]>https://mega.nz/#!mOgHjAKL!Q3SjX3OvOxzg4KIvs7x5VLGoDK9SfQ-HUvGxuWZsN3I 
 
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Rune's Pharmacy** (10/10) Juego exelente
+**Rune's Pharmacy (25/02/19)** (10/10) Juego exelente
 
 <[LINK JUEGO ]>https://goo.gl/tDUcBB 
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
 
-**The Pregcess Of Zeven** (7/10)
+**The Pregcess Of Zeven (24/03/19)** (7/10)
 
 <[LINK JUEGO ]>https://mega.nz/#!LWQ2DKLb!jjR_8pf4ZxvxbaLxuLtS7GR8imiftmxum0_S9yphfUg
 
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Slave's Sword (parte 1)** (9/10)
+**Slave's Sword (parte 1) (07/04/19)** (9/10)
 
 <[LINK JUEGO(solo 1 link) ]>https://anonfile.com/T8jay5v9b8 
 
@@ -147,7 +147,7 @@ https://nopy.to/RbP3Nv74/Slaves_Sword_patched.7z
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Slave's Sword (parte 2)** (9/10)
+**Slave's Sword (parte 2) (29/04/19)** (9/10)
 
 <[LINK JUEGO (solo 1 link) ]>https://mega.nz/#!zChxDADB!3Qu-8vXjSpepGuTJFeYnwmTRdiwHa9dYc4ZfIf5ATdw 
 
@@ -156,16 +156,7 @@ https://megaup.net/syW0/Slaves_Sword_2.rar
 
 //////////////////////////////////////////////////////////////////////////////////////////////
 
-**Slave's Sword (parte 2)** (9/10)
-
-<[LINK JUEGO (solo 1 link) ]>https://mega.nz/#!zChxDADB!3Qu-8vXjSpepGuTJFeYnwmTRdiwHa9dYc4ZfIf5ATdw 
-
-https://megaup.net/syW0/Slaves_Sword_2.rar 
-
-
-//////////////////////////////////////////////////////////////////////////////////////////////
-
-**Leanna's Slice of Life** (7/10) Muy buen arte pero demasiado repetitivo
+**Leanna's Slice of Life (20/05/19)** (7/10) Muy buen arte pero demasiado repetitivo
 
 <[LINK JUEGO]>https://nopy.to/3wLqjO7W/Leannas_Slice_of_Life.rar
 
@@ -173,7 +164,7 @@ https://megaup.net/syW0/Slaves_Sword_2.rar
 //////////////////////////////////////////////////////////////////////////////////////////////
 
 
-**Elise the Devil** (8/10) Juego redondo, Lolis, la prota es la villana...muy buen juego
+**Elise the Devil (30/05/19)** (8/10) Juego redondo, Lolis, la prota es la villana...muy buen juego
 
 <[LINK JUEGO]>https://mega.nz/#!ZOpiVSTB!vCEpdslj0jao6-EyYFKAXh2qprA95BKqpNpKzIrNLfQ
 
@@ -183,7 +174,7 @@ https://megaup.net/syW0/Slaves_Sword_2.rar
 //////////////////////////////////////////////////////////////////////////////////////////////
 
 
-**Rubia Ordeal** (5/10) Juego super corto
+**Rubia Ordeal (21/07/19)** (5/10) Juego super corto
 
 <[LINK JUEGO]>https://mega.nz/#!vzZi2CbZ!CD6h6ran7bjdHtzuIU30U0K24DbcLFGOtWG9HI5TAos
 
@@ -191,7 +182,7 @@ https://megaup.net/syW0/Slaves_Sword_2.rar
 //////////////////////////////////////////////////////////////////////////////////////////////
 
 
-**ALIENQUEST EVE V0.13** Metroidvania con un arte y animaciones muy buenas, Sigue en desarrollo
+**ALIENQUEST EVE V0.13 (21/07/19)** Metroidvania con un arte y animaciones muy buenas, Sigue en desarrollo
 
 <[LINK JUEGO]>https://drive.google.com/file/d/1DtjFlqO_U4n5dS-g4NqL0qaRRzeQ_Aj8/view
 
