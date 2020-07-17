@@ -60,7 +60,7 @@ Juego traducidos por hitsuji (Aun los tengo pendientes)
 
 <[LINK]> http://hitsuji-translations.blogspot.com/p/blog-page_98.html 
 
-#5 ¡Déjaselo a Nao-kun! 
+#5 Lisna y la Aldea de las Pesadillas
 
 <[LINK]> http://hitsuji-translations.blogspot.com/p/lisna.html 
 
